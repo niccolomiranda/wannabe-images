@@ -9,7 +9,7 @@ This repo resources cannot be used or build upon in personal or commercial proje
 
 Follow me: [Twitter](https://twitter.com/niccolomiranda), [Behance](https://behance.com/niccolomiranda), [Dribbble](https://dribbble.com/niccolomiranda), [Instagram](https://www.instagram.com/niccolomiranda/), [GitHub](https://github.com/niccolomiranda) 
 
-[© Niccolò Miranda 2020](http://www.niccolomiranda.com)
+[© Wannabe 2020](http://www.wannabe.toys)
 
 
 
